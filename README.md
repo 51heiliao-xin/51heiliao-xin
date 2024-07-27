@@ -1,8 +1,8 @@
-51黑料网最新地址👋（最新更新时间2024-07-08）
+51黑料网最新地址👋（最新更新时间2024-07-27）
 
-51黑料最新官网: https://51hl03.com
+51黑料最新官网: https://51hl04.com
 
-51黑料官方QQ群：https://51hl03.com/?path=/qun.html
+51黑料官方QQ群：https://51hl04.com/?path=/qun.html
 
 51黑料永久地址（需科学⬆️网工具）https://51hl.vip
 
